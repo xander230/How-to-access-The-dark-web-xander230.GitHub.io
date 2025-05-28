@@ -1,4 +1,4 @@
-# How-to-access-The-dark-web-xander230.GitHub.io
+# how to browse the Internet with 100% privacy
 if you want to have more secure and private search engines or access the dark web read ![image](https://github.com/user-attachments/assets/c77ce266-1299-4015-9aa6-8e45907cf47b)
 ![image](https://github.com/user-attachments/assets/40669249-77b7-403c-bc79-25013cd7a503) 
 Accessing the dark web securely involves a combination of tools and cautious practices. Here's a breakdown of the steps to take: 
